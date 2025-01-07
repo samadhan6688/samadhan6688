@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **samjadhav6688@gmail.com**
 
-- 📄 Know about my experiences [https://samadhan6688.github.io/porfolio/](https://samadhan6688.github.io/porfolio/)
+- 📄 Know about my experiences [https://samadhan6688.github.io/porfolio/](https://samadhan6688.github.io/My_resume/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
